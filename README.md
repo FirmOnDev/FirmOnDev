@@ -1,16 +1,32 @@
-## Hi there 👋
+# Oh HI! :D
 
-<!--
-**FirmOnDev/FirmOnDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# My name's "Firm" 🪶
 
-Here are some ideas to get you started:
+My hobby's mostly ~~GOON~~....i mean...gaming...smth like that...what u expected?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="2048" height="1152" alt="9nul04g54f1f1" src="https://github.com/user-attachments/assets/ca9055fc-3669-45c3-a37a-03419d043a35" />
+
+#### I really luv Mumei🤎 Why don't u come to *MOOMS* with us?
+
+
+**<u>My Favorite things to do</u>**:
+| My fav| ⭐ |
+| - | - |
+| Gaming (Especially Rhythm games) | 🎮 |
+| Watch Anime | 🌸 |
+| Listen to JP Music | 🎵 |
+| Watch some IT things | 💻 |
+
+Contact me:
+
+[![Discord](https://img.shields.io/badge/Discord-Click-5865F2?logo=discord&logoColor=white)](https://discordapp.com/users/631700482355757056)
+
+[![Instagram](https://img.shields.io/badge/Instagram-Follow-C13584?logo=instagram&logoColor=white)](https://www.instagram.com/_justfirm_/)
+
+[![Steam](https://img.shields.io/badge/Steam-Add-000000?logo=steam&logoColor=white)](https://steamcommunity.com/profiles/76561199109616758)
+
+Here smth interesting for ya! 
+
+[Wanna blessing ur ears?](https://www.youtube.com/watch?v=H3ynKWEboA8=34s)
+
+![Blessing ear](https://media1.tenor.com/m/ApKG4pa06cQAAAAC/red-hearing-peak.gif)
