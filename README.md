@@ -1,5 +1,7 @@
 # Oh HI! :D
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&pause=1000&color=00F7FF&center=true&vCenter=true&width=435&lines=Hello+World;I'm+Firm;IT+Student+at+KMITL)](https://git.io/typing-svg)
+
 # My name's "Firm" 🪶
 
 My hobby's mostly ~~GOON~~....i mean...gaming...smth like that...what u expected?
